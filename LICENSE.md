@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with top nft trading bot | collection-scanning + royalty-calculator, the #1 nft trading bot. Includes collection-scanning and royalty-calculator for a
 
 
 
